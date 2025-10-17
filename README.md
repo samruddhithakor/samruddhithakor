@@ -5,9 +5,9 @@
 ---
 
 💼 Software Development Engineer @ **Summit Interconnect**
+
 🎓 **Master of Applied Computer Science** at **Dalhousie University**
 
----
 
 ## 🚀 About Me
 
